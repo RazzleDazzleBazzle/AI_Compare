@@ -1,3 +1,7 @@
+Support Details.
+
+Contact: darrenwilson23@icloud.com
+
 # AI Compare — Privacy Policy & Features
 
 ## Privacy Policy
